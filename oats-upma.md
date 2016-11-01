@@ -1,8 +1,8 @@
-OATS UPMA RECIPE
+**OATS UPMA RECIPE**
 
-INGREDIENTS
+**INGREDIENTS**
 
-Main:
+**Main:**
 1. Mustard seeds and/or Cumin seeds
 2. Curry leaves
 3. Dry red chili (solid) or/and Green chili
@@ -14,20 +14,20 @@ Main:
 9. Onion, Ginger, Garlic
 10. Ghee or Oil 
 
-Garnishing:
+**Garnishing:**
 1. Fresh coriander leaves
 2. Lemon juice
 3. Grated coconut
 
-INSTRUCTIONS
+**INSTRUCTIONS
 
-Roasting:
+**Roasting:
 
 1.Roast Oats and Peanuts (if needed).
 2.Stir and dry roast on a low flame till the oats become crisp. Keep stirring
 continuously so that the oats do not get brown from the bottom.
 
-Preparation:
+**Preparation:
 
 1.Heat a pan with oil and add cumin, mustard, curry leaves,  peanuts, dry red
 chili, chana and urad dal, hing and fry a little. Make sure nothing gets burned
