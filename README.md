@@ -1,2 +1,2 @@
-# south-indian-breakfast
-Find delicious and nutritious South Indian breakfast recipes here.
+# kishmish
+Welcome to Kishmish! Find delicious and nutritious vegeterian recipes here. Let's have some fun cooking!
