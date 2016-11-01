@@ -19,15 +19,15 @@
 2. Lemon juice
 3. Grated coconut
 
-**INSTRUCTIONS
+**INSTRUCTIONS**
 
-**Roasting:
+**Roasting:**
 
 1.Roast Oats and Peanuts (if needed).
 2.Stir and dry roast on a low flame till the oats become crisp. Keep stirring
 continuously so that the oats do not get brown from the bottom.
 
-**Preparation:
+**Preparation:**
 
 1.Heat a pan with oil and add cumin, mustard, curry leaves,  peanuts, dry red
 chili, chana and urad dal, hing and fry a little. Make sure nothing gets burned
